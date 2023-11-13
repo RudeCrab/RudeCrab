@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-![微信二维码](http://ww1.sinaimg.cn/large/dcdff92dgy1glnmky7fb7j20p00dwdig.jpg)
+![微信二维码](http://tvax1.sinaimg.cn/large/dcdff92dgy1hjtwk5pkdtj20p00dwdj8.jpg)
